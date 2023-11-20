@@ -1,12 +1,8 @@
 # valaxy-rtp Test Webhook
 TEST
 bdhsvchdsbvchdcv
-bvdfnbv. vndfb vjkfbvjfdb
-fdjvnbjfbnvfjbvnf vjkvkfbvjbndf
-hewrbfhrbfhrvbv hvgwhvbhv 
-vhadbcvdhjbvchdbvvbcdhbvh
 bvvbhbfdbv vbhdfbvjhksadbvdjnvsjk
-bvdhvbsdhbvhsd hdsbvhdsbvhdbsjvhbadj
+vxjhsgkbjsxuabj,ambbvdhvbsdhbvhsd hdsbvhdsbvhdbsjvhbadj
 hbds   chbbdhdsbchsadbh
  bc. bc vbhscvhs. bhsdbhndsbhdsbkjxsljc
  dscv sbd chdsbsahb
